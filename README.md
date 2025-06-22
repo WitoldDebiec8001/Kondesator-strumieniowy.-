@@ -1,0 +1,1 @@
+# Kondesator-strumieniowy.-
